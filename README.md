@@ -1,1 +1,1 @@
-I'm him.
+The strongest physicist of all time versus the strongest physicist of today.
